@@ -5,5 +5,5 @@
 -
 -
 -
-## Minsk State Linguistic University, 
-## Upper-Intermediate. Работаю частным преподавателем по английскому языку
+## Minsk State Linguistic University, English Faculty
+## Upper-Intermediate. I work as an online English tutor 
